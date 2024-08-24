@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mlage74
-- 👀 I’m interested in DAM
+- 👀 I’m interested in DAW
 - 🌱 I’m currently learning módulo superior en DAM
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
